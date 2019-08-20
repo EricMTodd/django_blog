@@ -2,6 +2,6 @@
 
 https://www.youtube.com/playlist?list=PL-osiE80TeTtoQCKZ03TU5fNfx2UY6U4p
 
-## Video 9/17
+## Video 10/17
 
 ### Paused at 00:00:00
